@@ -1,3 +1,6 @@
+<div align="center">
+  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/top-nongamstop-casinos-1.webp" alt="Top-Rated Non GamStop Casinos" style="width:300px; height:auto; border-radius: 8px;">
+</div>
 <h1>Best Non GamStop Casinos UK in 2025</h1>
 *Last Updated: 17 September 2025*
 
@@ -221,8 +224,5 @@ For players seeking more flexibility and fewer restrictions in their online gami
 
 ---
 
-<br>
 
-<div align="center">
-  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/top-nongamstop-casinos-1.webp" alt="Top-Rated Non GamStop Casinos" style="width:100%; max-width:800px; border-radius: 8px;">
-</div>
+
