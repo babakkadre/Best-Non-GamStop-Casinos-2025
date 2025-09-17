@@ -17,15 +17,15 @@ For players seeking more flexibility and fewer restrictions in their online gami
 <h2 style="color: #e5c735;">1. Golden Mister Casino</h2>
 
 <a href="https://wooricasino119.com/visit/goldenmister" target="_blank" rel="noopener noreferrer sponsored nofollow">
-  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/goldenmister.webp" alt="Golden Mister Casino Logo" style="width:100%; max-width:500px; border-radius: 8px;">
+  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/goldenmister.webp" alt="Golden Mister Casino Logo" style="width:300px; height:auto; border-radius: 8px;">
 </a>
 
 ### ★★★★★ (5.0)
 
 <div style="color: #e5c735;">925% Welcome Bonus Across First 5 Deposits</div>
 
-<a href="https://wooricasino119.com/visit/goldenmister" target="_blank" rel="noopener noreferrer sponsored nofollow" style="display:inline-block; padding: 12px 30px; background-color: #C8102E; color: #ffffff; font-size: 18px; font-weight: bold; text-decoration: none; border-radius: 5px; box-shadow: 0 4px 6px rgba(0,0,0,0.2);">
-  CLAIM YOUR BONUS
+<a href="https://wooricasino119.com/visit/goldenmister" target="_blank" rel="noopener noreferrer sponsored nofollow" style="color:red;font-size:22px;">
+  CLAIM BONUS NOW
 </a>
 
 <br>
@@ -52,15 +52,15 @@ For players seeking more flexibility and fewer restrictions in their online gami
 ## 2. Rich Prize Casino
 
 <a href="https://wooricasino119.com/visit/richprize" target="_blank" rel="noopener noreferrer sponsored nofollow">
-  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/richprize.webp" alt="Rich Prize Casino Logo" style="width:100%; max-width:500px; border-radius: 8px;">
+  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/richprize.webp" alt="Rich Prize Casino Logo" style="width:300px; height:auto; border-radius: 8px;">
 </a>
 
 ### ★★★★★ (5.0)
 
 <div style="color: #e5c735;">Up To £5,000 Bonus + 150 Free Spins</div>
 
-<a href="https://wooricasino119.com/visit/richprize" target="_blank" rel="noopener noreferrer sponsored nofollow" style="display:inline-block; padding: 12px 30px; background-color: #C8102E; color: #ffffff; font-size: 18px; font-weight: bold; text-decoration: none; border-radius: 5px; box-shadow: 0 4px 6px rgba(0,0,0,0.2);">
-  CLAIM YOUR BONUS
+<a href="https://wooricasino119.com/visit/richprize" target="_blank" rel="noopener noreferrer sponsored nofollow" style="color:red;font-size:22px;">
+  CLAIM BONUS NOW
 </a>
 
 <br>
@@ -87,15 +87,15 @@ For players seeking more flexibility and fewer restrictions in their online gami
 ## 3. Slots Dynamite Casino
 
 <a href="https://wooricasino119.com/visit/slotsdynamite01" target="_blank" rel="noopener noreferrer sponsored nofollow">
-  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/slotsdynamite.webp" alt="Slots Dynamite Casino Logo" style="width:100%; max-width:500px; border-radius: 8px;">
+  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/slotsdynamite.webp" alt="Slots Dynamite Casino Logo" style="width:300px; height:auto; border-radius: 8px;">
 </a>
 
 ### ★★★★★ (5.0)
 
 <div style="color: #e5c735;">200% up to £2,000 + 100 Free Spins</div>
 
-<a href="https://wooricasino119.com/visit/slotsdynamite01" target="_blank" rel="noopener noreferrer sponsored nofollow" style="display:inline-block; padding: 12px 30px; background-color: #C8102E; color: #ffffff; font-size: 18px; font-weight: bold; text-decoration: none; border-radius: 5px; box-shadow: 0 4px 6px rgba(0,0,0,0.2);">
-  CLAIM YOUR BONUS
+<a href="https://wooricasino119.com/visit/slotsdynamite01" target="_blank" rel="noopener noreferrer sponsored nofollow" style="color:red;font-size:22px;">
+  CLAIM BONUS NOW
 </a>
 
 <br>
@@ -122,15 +122,15 @@ For players seeking more flexibility and fewer restrictions in their online gami
 ## 4. 1Red Casino
 
 <a href="https://wooricasino119.com/visit/1red" target="_blank" rel="noopener noreferrer sponsored nofollow">
-  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/1red.webp" alt="1Red Casino Logo" style="width:100%; max-width:500px; border-radius: 8px;">
+  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/1red.webp" alt="1Red Casino Logo" style="width:300px; height:auto; border-radius: 8px;">
 </a>
 
 ### ★★★★☆ (4.9)
 
 <div style="color: #e5c735;">200% up to £7,760 + 100 Free Spins</div>
 
-<a href="https://wooricasino119.com/visit/1red" target="_blank" rel="noopener noreferrer sponsored nofollow" style="display:inline-block; padding: 12px 30px; background-color: #C8102E; color: #ffffff; font-size: 18px; font-weight: bold; text-decoration: none; border-radius: 5px; box-shadow: 0 4px 6px rgba(0,0,0,0.2);">
-  CLAIM YOUR BONUS
+<a href="https://wooricasino119.com/visit/1red" target="_blank" rel="noopener noreferrer sponsored nofollow" style="color:red;font-size:22px;">
+  CLAIM BONUS NOW
 </a>
 
 <br>
@@ -157,15 +157,15 @@ For players seeking more flexibility and fewer restrictions in their online gami
 ## 5. Lucki Casino
 
 <a href="https://wooricasino119.com/visit/lucki" target="_blank" rel="noopener noreferrer sponsored nofollow">
-  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/luckicasino.webp" alt="Lucki Casino Logo" style="width:100%; max-width:500px; border-radius: 8px;">
+  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/luckicasino.webp" alt="Lucki Casino Logo" style="width:300px; height:auto; border-radius: 8px;">
 </a>
 
 ### ★★★★☆ (4.9)
 
 <div style="color: #e5c735;">450% Bonus up to £5,000</div>
 
-<a href="https://wooricasino119.com/visit/lucki" target="_blank" rel="noopener noreferrer sponsored nofollow" style="display:inline-block; padding: 12px 30px; background-color: #C8102E; color: #ffffff; font-size: 18px; font-weight: bold; text-decoration: none; border-radius: 5px; box-shadow: 0 4px 6px rgba(0,0,0,0.2);">
-  CLAIM YOUR BONUS
+<a href="https://wooricasino119.com/visit/lucki" target="_blank" rel="noopener noreferrer sponsored nofollow" style="color:red;font-size:22px;">
+  CLAIM BONUS NOW
 </a>
 
 <br>
@@ -192,15 +192,15 @@ For players seeking more flexibility and fewer restrictions in their online gami
 ## 6. Mad Casino
 
 <a href="https://wooricasino119.com/visit/mad" target="_blank" rel="noopener noreferrer sponsored nofollow">
-  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/madcasino.webp" alt="Mad Casino Logo" style="width:100%; max-width:500px; border-radius: 8px;">
+  <img src="https://wooricasino119.com/wp-content/uploads/2025/08/madcasino.webp" alt="Mad Casino Logo" style="width:300px; height:auto; border-radius: 8px;">
 </a>
 
 ### ★★★★☆ (4.9)
 
 <div style="color: #e5c735;">777% Bonus up to £7,500</div>
 
-<a href="https://wooricasino119.com/visit/mad" target="_blank" rel="noopener noreferrer sponsored nofollow" style="display:inline-block; padding: 12px 30px; background-color: #C8102E; color: #ffffff; font-size: 18px; font-weight: bold; text-decoration: none; border-radius: 5px; box-shadow: 0 4px 6px rgba(0,0,0,0.2);">
-  CLAIM YOUR BONUS
+<a href="https://wooricasino119.com/visit/mad" target="_blank" rel="noopener noreferrer sponsored nofollow" style="color:red;font-size:22px;">
+  CLAIM BONUS NOW
 </a>
 
 <br>
